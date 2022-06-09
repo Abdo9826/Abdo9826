@@ -1,4 +1,4 @@
-### Hi there, Im Abdo 👋
+### Hi there, I'm Abdo 👋
 
 
 Here are some ideas to get you started:
